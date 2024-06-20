@@ -4,7 +4,7 @@
 - 💞️ apaixonado pelo que eu faço
 - 📫 disponível para fazer o que for preciso pela empresa
 - 😄 Pronouns: ótima relação com funcionários e patrões
-- ⚡ Fun fact: 
+- ⚡ Fun fact: tenho carteira de motorista 
 
 <!---
 raijose/raijose is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
